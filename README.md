@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Davrcardo
 - 👀 I’m interested in kanye west
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on stuff
+- 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me idk
-- 😄 Pronouns: kanye wet
+- 😄 Pronouns: kanye west
 - ⚡ Fun fact: yes
